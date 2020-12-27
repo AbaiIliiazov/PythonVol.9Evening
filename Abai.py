@@ -1,3 +1,2 @@
-Abai Iliiazov
-Makers
+What have I done today? 
 
